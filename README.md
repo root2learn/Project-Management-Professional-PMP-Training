@@ -1,0 +1,2 @@
+# Project-Management-Professional-PMP-Training
+PMP (Project Management Certified) Professionals get 25% higher salary than non certified. Would you like to learn world recognized project management skills? Module 1: Creating a High-Performing Team Module 2: Starting the Project Module 3: Doing the Work Module 4: Keeping the Team on Track Module 5: Keeping the Business in Mind Module 6: PMP (Project Management Professionals) Examination Preparation Get PMP upcoming schedules:
